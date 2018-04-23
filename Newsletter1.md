@@ -11,7 +11,7 @@ Health/wellness has morphed from simply pertaining to one's lifestyle to being a
 
 But all is not lost. If you're strapped for time, you can always start with something small and simple, and maybe this little act will provide a much-needed jumpstart to improving your health.
 
-Simply put, drink some tea! It only takes a few minutes to boil some water and before you know it, you'll be sipping that tea, looking sophisticated and classy while drinking something that actively works to make you feel better, to feel healthier. Plus, you can carry tea around with you throughout the day. Below, I'll list some teas that I'd recommend.
+Simply put, drink some tea! It only takes a few minutes to boil some water. And before you know it, you'll be sipping that tea, looking sophisticated and classy while drinking something that actively works to make you feel better, to feel healthier. Plus, you can carry tea around with you throughout the day. Below, I'll list some teas that I'd recommend.
 
 ###### Green tea:
 Arguably the most well-known tea available with a whole host of health benefits. One resource asserts that it is one of the healthiest drinks that you can find on the planet. Dr. Christopher Ochner, a research scientist at the Icahn School of Medicine, says it's "the healthiest thing [he] can think of to drink." So, what's all the hype around green tea? Well, let's find out.
