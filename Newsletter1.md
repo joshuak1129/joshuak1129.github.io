@@ -20,6 +20,6 @@ Also a very popular and well-known tea. And just like green tea, it has many imp
 ###### Lemon-ginger tea:
 Undergoing a bout of nausea? Having digestion problems? Looking to boost your metabolism? Well, look no further. Try some lemon-ginger tea!
 
-Though some of you may be hearing about it for the first time, lemon-ginger tea is great for your health. is one of my personal favorites! It actually tastes pretty decent and a cup of lemon-ginger tea every morning can help you to burn more calories throughout the day. Other benefits include boosting immune systems, reducing fevers, improving cognition, improving hair growth/quality, and promoting the growth of new cells.
+Though some of you may be hearing about it for the first time, lemon-ginger tea is great for your health. It is also one of my personal favorites! It actually tastes pretty decent and a cup of lemon-ginger tea every morning can help you to burn more calories throughout the day. Other benefits include boosting immune systems, reducing fevers, improving cognition, improving hair growth/quality, and promoting the growth of new cells.
 
 That's all for now (more coming in Part 2!) but give these teas a try! It'll only take a few minutes out of your day (for all those busy people out there), and best of all, you'll feel yourself getting healthier and healthier, sip by sip!
