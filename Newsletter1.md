@@ -7,7 +7,7 @@ Ah, think back: It's New Year's Day. You have your exciting list of New Year's r
 
 Fast-forward a few months. Are you finding now that your health/wellness has taken a backseat to school, work, and hanging out with friends? Well, you're not alone. According to a survey, only 8% of people actually keep their New Year's resolutions. No doubt, our increasingly busy, demanding lives play a role in our failures to keep our resolutions.
 
-Health/wellness has morphed from simply pertaining to one's lifestyle to being a cultural phenomenon. And yet, with our demanding schedules and obligations, even with the constant reminders that we ought to take care of ourselves, exercising or spending time at the grocery store to carefully watch what you eat is difficult. If you're strapped for time, you can always start with something small and simple, and maybe this little act will provide a much-needed jumpstart to improving your health.
+Health/wellness has morphed from simply pertaining to one's lifestyle to being a cultural phenomenon. And yet, with our demanding schedules and obligations, even with the constant reminders that we ought to take care of ourselves, exercising or carefully watching what you eat is difficult. If you're strapped for time, you can always start with something small and simple, and maybe this little act will provide a much-needed jumpstart to improving your health.
 
 Simply put, drink some tea! It only takes a few minutes to boil some water and before you know it, you'll be sipping that tea, looking sophisticated and classy while drinking something that actively works to make you feel better, to feel healthier. Plus, you can carry tea around with you throughout the day. Below, I'll list some teas that I'd recommend.
 
