@@ -3,7 +3,7 @@
 ###### "I say let the world go to hell, but I should always have my tea"
 ###### Fyodor Dostoevsky, Notes from Underground
 
-Ah, think back: It's New Year's Day and you have your exciting list of New Year's resolutions. It glimmers with a sense of hope and possibility. Perhaps improving your health/wellness was on that list. Fast-forward a few months. Are you finding now that your health/wellness has taken a backseat to school, work, and hanging out with friends? Well, you're not alone. According to a survey, only 8% of people actually keep their New Year's resolutions. No doubt, our increasingly busy, demanding lives play a role in our failures to keep our resolutions.
+Ah, think back: It's New Year's Day. You have your exciting list of New Year's resolutions. It glimmers with a sense of hope and possibility. Perhaps improving your health/wellness was on that list. Fast-forward a few months. Are you finding now that your health/wellness has taken a backseat to school, work, and hanging out with friends? Well, you're not alone. According to a survey, only 8% of people actually keep their New Year's resolutions. No doubt, our increasingly busy, demanding lives play a role in our failures to keep our resolutions.
 
 Health/wellness has morphed from simply pertaining to one's lifestyle to being a cultural phenomenon on the "pop culture" scene. And yet, with our demanding schedules and obligations, even with the constant reminders that we ought to take care of ourselves, exercising or spending time at the grocery store to carefully watch what you eat is difficult. If you're strapped for time, you can always start with something small and simple, and maybe this little act will provide a much-needed jumpstart to improving your health.
 
