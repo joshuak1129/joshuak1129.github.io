@@ -10,7 +10,7 @@ Health/wellness has morphed from simply pertaining to one's lifestyle to being a
 Simply put, drink some tea! It only takes a few minutes to boil some water and before you know it, you'll be sipping that tea, looking sophisticated and classy while drinking something that actively works to make you feel better, to feel healthier. Plus, you can carry tea around with you throughout the day. Below, I'll list some teas that I'd recommend.
 
 ###### Green tea:
-Arguably one of the most well-known and common types of tea. It also has a whole host of health benefits. One resource asserts that it is one of the healthiest drinks that you can find on the planet. Dr. Christopher Ochner, a research scientist at the Icahn School of Medicine, says it's "the healthiest thing [he] can think of to drink." So, what's all the hype around green tea? Well, let's find out.
+Arguably the most well-known tea available. It also has a whole host of health benefits. One resource asserts that it is one of the healthiest drinks that you can find on the planet. Dr. Christopher Ochner, a research scientist at the Icahn School of Medicine, says it's "the healthiest thing [he] can think of to drink." So, what's all the hype around green tea? Well, let's find out.
 
 First, green tea has been known to improve blood flow and lower cholesterol. Improved blood flow, as you may have guessed, also contributes to a healthier heart and brain. For example, one study revealed through MRIs that people who regularly drank green tea had more activity in the "working memory" part of their brain. Furthermore, green tea aids healthy cells in all stages of growth. However, if you're sensitive to caffeine, please be aware that green tea is caffeinated.
 
