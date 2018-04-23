@@ -5,7 +5,7 @@
 
 Ah, think back: It's New Year's Day. You have your exciting list of New Year's resolutions. It glimmers with a sense of hope and possibility. Perhaps improving your health/wellness was on that list.
 
-Fast-forward a few months. Are you finding now that your health/wellness has taken a backseat to school, work, and hanging out with friends? Well, you're not alone. According to a survey, only 8% of people actually keep their New Year's resolutions. No doubt, our increasingly busy, demanding lives play a role in our failures to keep our resolutions.
+Fast-forward a few months. Are you finding now that your health/wellness has taken a backseat to school, work, and hanging out with friends? Well, you're not alone. According to a survey, only 8% of people actually keep their New Year's resolutions. No doubt, our increasingly busy, demanding lives play a role in our failures.
 
 Health/wellness has morphed from simply pertaining to one's lifestyle to being a cultural phenomenon. And yet, with our demanding schedules and obligations, even with the constant reminders that we ought to take care of ourselves, exercising or carefully watching what you eat is difficult.
 
