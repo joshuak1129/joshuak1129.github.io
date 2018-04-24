@@ -7,15 +7,15 @@ With formal introductions out of the way, we can jump right into the heart of th
 Perhaps you tried some tea after the last post. Maybe trying some tea has been
 on your mind for a while, but you haven't gotten around to it yet. Or maybe
 you're not all that interested but, at the same time, want to try something new
-or different. Well, whichever "category" you put yourself in need not matter
-as much as the fact that this post is for everyone: the tea enthusiasts, the
+or different. Well, whichever "category" you put yourself in doesn't matter.
+This post is for everyone: the tea enthusiasts, the
 skeptics, the curious onlookers, whoever. My only hope is that this post will
 make it easier for you to try something new while improving your health and
 wellness. If you can boil water, if you have some pocket change to buy teabags,
 and if you know how to drink (I'll just assume that you all do), you're about
 as ready as you can be. Let's get to it then!
 
-###### Red Rooibos Tea:
+###### Red Rooibos Tea
 Though this tea is not as well-known as, say, green tea or black tea, it ought
 to be. It's one of my favorites. The "aftertaste" is not too strong and as a
 result rooibos tea is quite soothing and calming. For caffeine-sensitive people,
@@ -25,7 +25,7 @@ tension, improving heart health, easing stomach aches and abdominal pain, and
 acting as an anti-aging product. The list could go on and on (really, look above)
 so, if you're interested, give this one a try!
 
-###### Chamomile Tea:
+###### Chamomile Tea
 I'll be honest with you: I haven't tried this tea all that much. So, for those
 who haven't tried this variety, it looks like we're on the same boat. After
 some research, though, I've found that this is a great choice if you're stressed
@@ -38,7 +38,7 @@ you. Other health benefits include boosting your immune system, relieving stress
 anxiety, improving skin health, and treating stomach irritations. Sounds like a
 pretty good deal to me.
 
-###### Traditional Korean Plum Tea:
+###### Traditional Korean Plum Tea
 I'll end with one of my favorites. The Korean plum tea. It's actually fruit-based.
 What's funny is that it's not actually made out of plums but rather from extracts of Japanese apricots (otherwise known as "green plums"). But, I guess "plum tea" has
 a better ring to it than "Japanese apricot tea." Though I admit that this tea is
