@@ -16,7 +16,7 @@ result rooibos tea is quite soothing and calming. For caffeine-sensitive people,
 no worries! Rooibos tea is caffeine-free and has been noted to help
 people sleep better. Some other health benefits include relieving stress/nervous
 tension, improving heart health, easing stomach aches and abdominal pain, and
-acting as an anti-aging product. The list could go on and on (really, look above)
+acting as an anti-aging product. The list could go on and on,
 so, if you're interested, give this one a try!
 
 ###### Chamomile Tea
