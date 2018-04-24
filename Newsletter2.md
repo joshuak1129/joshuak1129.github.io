@@ -21,7 +21,7 @@ so, if you're interested, give this one a try!
 
 ###### Chamomile Tea
 I'll be honest with you: I haven't tried this tea all that much. So, for those
-new to tea, it looks like we're on the same boat. After
+new to teas, it looks like we're on the same boat. After
 some research, though, I've found that this is a great choice if you're stressed
 and having trouble sleeping. Chamomile tea is a noted sleep-inducer, aiding
 those with sleep apnea or other sleeping disorders in getting a good night's
