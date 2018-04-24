@@ -37,7 +37,7 @@ I'll end with one of my favorites. The fruit-based Korean plum tea.
 What's funny is that it's not actually made out of plums but rather from extracts of Japanese apricots (otherwise known as "green plums"). But, I guess "plum tea" has
 a better ring to it than "Japanese apricot tea." Though I admit that this tea is
 harder to get than others (it's not readily known outside of South Korea),
-it is available on Amazon (I checked!) and it's worth it. Why? Because it tastes great
+it is available on Amazon and it's worth it. Why? Because it tastes great
 and calms an upset stomach. I can vouch for this with personal experience. Simply put,
 I was in Korea, had a stomach ache, tried some plum tea, and lo and behold, I felt
 much better. Maybe it was psychological, but who cares? It tasted good, I had a nice
