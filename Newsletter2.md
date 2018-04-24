@@ -5,7 +5,7 @@
 
 With formal introductions out of the way, we can jump right to it!
 Perhaps you tried some tea after the last post. Maybe trying some tea has been
-on your mind for a while, but you haven't gotten around to it yet. Or maybe
+on your mind, but you haven't gotten around to it yet. Or maybe
 you're not all that interested but, at the same time, want to try something new
 or different. Whichever "category" you put yourself in doesn't matter.
 This post is for everyone: the tea enthusiasts, the skeptics, the curious onlookers, whoever. My only hope is that this post will make it easier for you to try something new while improving your health and wellness. If you can boil water, if you have some pocket change to buy teabags, and if you know how to drink (I'll just assume that you all do), you're about as ready as you can be. Let's get to it then!
