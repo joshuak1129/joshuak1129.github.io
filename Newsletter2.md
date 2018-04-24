@@ -34,7 +34,7 @@ pretty good deal to me.
 
 ###### Traditional Korean Plum Tea
 I'll end with one of my favorites. The fruit-based Korean plum tea.
-What's funny is that it's not actually made out of plums but rather from extracts of Japanese apricots (otherwise known as "green plums"). But, I guess "plum tea" has
+Interestingly, it's not actually made out of plums but rather from extracts of Japanese apricots (otherwise known as "green plums"). But, I guess "plum tea" has
 a better ring to it than "Japanese apricot tea." Though I admit that this tea is
 harder to get than others (it's not readily known outside of South Korea),
 it is available on Amazon and it's worth it. Why? Because it tastes great
