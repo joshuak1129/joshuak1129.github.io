@@ -25,7 +25,7 @@ new to teas, it looks like we're on the same boat. After
 some research, though, I've found that this is a great choice if you're stressed
 and having trouble sleeping. Chamomile tea is a noted sleep-inducer, aiding
 those with sleep apnea or other sleeping disorders in getting a good night's
-rest. I think we've all been there before: losing sleep due to
+rest. I think we've all been there before: losing sleep due to stress from
 school, work, our personal lives, etc. So, whenever you have bouts of sleepless
 nights, look no further than chamomile tea! It just may be the right thing for
 you. Other health benefits include boosting your immune system, relieving stress/
