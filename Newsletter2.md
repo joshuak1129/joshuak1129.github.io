@@ -13,7 +13,7 @@ This post is for everyone: the tea enthusiasts, the skeptics, the curious onlook
 Though this tea is not as well-known as, say, green tea or black tea, it ought
 to be. It's one of my favorites. The "aftertaste" is not too strong and as a
 result rooibos tea is quite soothing and calming. For caffeine-sensitive people,
-no worries! Rooibos tea is caffeine-free and actually has been noted to help
+no worries! Rooibos tea is caffeine-free and has been noted to help
 people sleep better. Some other health benefits include relieving stress/nervous
 tension, improving heart health, easing stomach aches and abdominal pain, and
 acting as an anti-aging product. The list could go on and on (really, look above)
