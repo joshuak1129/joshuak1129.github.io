@@ -1,5 +1,5 @@
-# 3 Teas You MUST Try to Feel Tea-riffic! (Part 2)
-## By Josh Kim
+ 3 Teas You MUST Try to Feel Tea-riffic! (Part 2)
+ By Josh Kim
 ###### "You can never get a cup of tea large enough or a book long enough to suit me."
 ###### --C.S. Lewis
 
